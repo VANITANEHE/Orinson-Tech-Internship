@@ -1,2 +1,2 @@
 # Orinson-Tech-Internship!
-[orinson](https://github.com/user-attachments/assets/a31ee9fa-9f7b-4e9a-9479-343e1ce1f428)
+![orinson](https://github.com/user-attachments/assets/df17f989-b224-4c96-9c25-fd7e59ed4b2b)
